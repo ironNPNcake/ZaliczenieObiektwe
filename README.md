@@ -1,0 +1,2 @@
+# ZaliczenieObiektwe
+qwer
